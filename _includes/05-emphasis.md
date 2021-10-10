@@ -1,1 +1,4 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*Master your Destiny young apprentice*
+
+_**Together we shall rule the GALAXY**_
+ 
